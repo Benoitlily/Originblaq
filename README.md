@@ -1,0 +1,2 @@
+# Originblaq
+GitHub Pages
